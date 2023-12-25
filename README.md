@@ -13,11 +13,11 @@
 
 #### PC/手机：
 
-<a src='https://www.jun-mou.top/love/tree/'>https://www.jun-mou.top/love/tree/</>
+<a href='https://www.jun-mou.top/love/tree/' target="_blank">https://www.jun-mou.top/love/tree/</a>
 
 #### 截图:
 ![输入图片说明](%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20231225164917.png)
-![输入图片说明](%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20231225164923.png)
+![输入图片说明](%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20231225165146.png)
 
 #### 扫码：
 
